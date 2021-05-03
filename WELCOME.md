@@ -1,2 +1,2 @@
-# https://linktr.ee/Lix7
-My social links
+# linktr.ee/Lix7
+\\\My social links///
